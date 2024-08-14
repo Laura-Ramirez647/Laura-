@@ -1,1 +1,1 @@
-# Laura-
+# Laura-I wanna learnd in the future how create an aplication and how make it funcion. Also I wanna learn more about how use GitHub and learnd more GitHub comands.
